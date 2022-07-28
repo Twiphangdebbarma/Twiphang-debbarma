@@ -1,3 +1,3 @@
 # Twiphang-debbarma
-Hack me 😘 love me 😘 
+HACK ME 😘 LOVE ME 😘 
 MOOD VIP 
